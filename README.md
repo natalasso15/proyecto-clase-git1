@@ -1,1 +1,1 @@
-Este proyecto fue iniciado por Natalia y Valeria está colaborando.
+Soy estudiante 1 Natalia
